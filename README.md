@@ -1,3 +1,3 @@
 # NOMErepositorio
 
-Não leia, sou timido *-*
+Não leia, sou timido >_<
